@@ -1,0 +1,1 @@
+# Patent-inwerter-solarny-i-regulator-adowania
